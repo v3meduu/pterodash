@@ -1,3 +1,3 @@
 # Myridax Dashboard
 
-![alt text](https://i.ibb.co/56JKjgn/Ofr-lse-1-modified.png)
+![alt text](https://i.ibb.co/58gChTb/Ofr-lse-2-modified-1.png)
